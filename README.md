@@ -1,4 +1,4 @@
-# Hi 👋 I'm Ava, or Ba, or V
+# Hi 👋 
 
 I'm just your average neighbor becoming a crazy cat lady who loves pretty women and money.  
 
@@ -6,9 +6,20 @@ You can find me shooting hoops at [UNSW Village Green](https://maps.app.goo.gl/T
 
 Looking forward to growing and achieving big things in 2025! :)  
 
+
+![ahhhhba (3)](https://github.com/user-attachments/assets/a0d7cfe8-6bdc-42fc-94a5-ef08c8c2d680)
+
+
 ---
 
-### 🏆 **Achievements & Music**  
+### **Currently on...**  
+
+
+
+### 🔥 **GitHub Streak**
+<p align="center">
+  <img src="https://streak-stats.demolab.com?user=in-c0&theme=dark&date_format=M%20j%5B%2C%20Y%5D" width="50%"/>
+</p>
 
 <p align="center">
   <img src="https://github-profile-trophy.vercel.app/?username=in-c0&row=2&column=3" width="50%" />
@@ -19,14 +30,6 @@ Looking forward to growing and achieving big things in 2025! :)
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31spetwijkn63mdjzj4r6ziqp5pu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false" width="50%"/>
   </a>
 </p>
-
----
-
-### 🔥 **GitHub Streak**
-<p align="center">
-  <img src="https://streak-stats.demolab.com?user=in-c0&theme=dark&date_format=M%20j%5B%2C%20Y%5D" width="50%"/>
-</p>
-
 
 ---
 
@@ -64,10 +67,9 @@ Looking forward to growing and achieving big things in 2025! :)
 
 ### **My Goals for Life**  
 - 💪 Becoming physically strong enough to fight off bad guys and lift my girl up and spin her around  
-- 🌟 Building recognition for personal brands (fitness/music/art/business) (Goal is to accrue 10K followers each)
+- 🌟 Building recognition for personal brands (fitness/music/art/business) (Goal is to accrue 10K followers each and it's only just the beginning 😺  - http://linktr.ee/avajiyo )
 - 😂 Developing enough character to make people laugh at my funeral 
 - 🧠 Becoming mentally strong enough to **never give up** on these goals or life
-
 
 
 ---
